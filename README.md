@@ -8,7 +8,7 @@ work in progress . ![.](https://i.ibb.co/sg3VcY7/IMG-7572.gif)
 
 <p align="center"
 
-![](https://komarev.com/ghpvc/?username=chewbiscuits&color=FFFFFF&style=plastic&label=ꜛ+angels)
+![](https://komarev.com/ghpvc/?username=chewbiscuits&color=FFFFFF&style=plastic&label=ꜛ+nerds)
 
 <p align="center"
 
