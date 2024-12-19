@@ -68,5 +68,9 @@ nso (obvi), guilty gear, love angel syndrome, law of talos/endzone, 12 oz. mouse
 
 <p align="center"
 
+ ![.](https://64.media.tumblr.com/3b843b7d9b396bf0b40d9a264c8b0f5a/9aed802313768450-90/s100x200/8ec6676d38edd9e06e06b5b50047ecce2e96b441.gifv)  ![.](https://64.media.tumblr.com/57e6e3a949b2e44ae282ff8377a81dc6/e4d134fc2dfafbb4-1a/s100x200/d882f36193f65958c8e0d4db0e6c827fd920a366.pnj)
 
+<p align="center"
+ 
 ![image](https://github.com/user-attachments/assets/4d1b6185-28c9-4e9a-8346-52b760e48715)
+
