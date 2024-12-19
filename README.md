@@ -14,7 +14,7 @@ i am a fictionkin of <ins>ame/**kangel**</ins>; i do not support her problematic
 
 <p align="center"
   
-im very socially awkward and tend to be dry/blunt when speaking directly so iwc when near me,, i also experience anger issues. I dont normally int first unless u have a specific interest i rlly like so dont expect me to make convo w u
+im very socially awkward and tend to be dry/blunt (tho i match energy if ur not) when speaking directly so iwc when near me,, i also experience anger issues. I dont normally int first unless u have a specific interest i rlly like so dont expect me to make convo w u
 <p align="center"
   
 i dont mind c+h but i willnot add u unless we speak/hang out a lot or that i trust u bc i dont rlly friend random ppl,, again i might friend bc u have the same interest as me so thats an exception,,
