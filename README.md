@@ -60,7 +60,7 @@ mouthwashing fans dniuf
 i block/hide freely btw!! holy yap this is so long
 
 current interests:
-nso (obvi), guilty gear, love angel syndrome, law of talos/endzone, 12 oz. mouse, tekken, 8:11, regretevator, deltarune, undertale, athf, superjail, helltaker, ranfren, paperteeth, lemon demon, iruka no yumede sayonara, midnight horrors, perfume fans wya...
+nso (obvi), guilty gear, love angel syndrome, law of talos/endzone, 12 oz. mouse, tekken, south park, 8:11, regretevator, deltarune, undertale, athf, superjail, helltaker, ranfren, paperteeth, lemon demon, iruka no yumede sayonara, midnight horrors, perfume fans wya...
 
 <p align="center"
 
