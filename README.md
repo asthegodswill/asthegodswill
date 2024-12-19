@@ -25,7 +25,7 @@ do not romantically/sexually engage w me or flirt bc i am very uncomfortable w i
 
 <p align="center"
 
-DO NOT under any circumstances copy/inspo my skins, as they take a while to make n i just rlly hate copiers. I will not at all be nice if u do this. also do not randomly post them online w/o permission cus ive seen ppl do that to others??
+***DO NOT under any circumstances copy/inspo my skins, as they take a while to make n i just rlly hate copiers. I will not at all be nice if u do this. also do not randomly post them online w/o permission??***
 
 <br>
 <p align="center"
