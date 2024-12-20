@@ -1,9 +1,9 @@
 <p align="center"
 
 
-![image](https://github.com/user-attachments/assets/4eb6b4c0-df32-41ac-b2c3-271ba0cd3a44)
+![image](https://github.com/user-attachments/assets/36691fbf-8bca-44da-bf60-758fc3f235e6)
 <br>
- ![.](https://i.postimg.cc/Nj8nJLFn/BFE1609F-1890-4E1B-9253-60C8D86AB1BB.gif)
+![.](https://wilardo.crd.co/assets/images/gallery23/13ee5167.gif?v=f2364dd6)
 
 <p align="center"
 
@@ -11,5 +11,5 @@
 
 <p align="center"
  
-![image](https://github.com/user-attachments/assets/4d1b6185-28c9-4e9a-8346-52b760e48715)
+![image](https://github.com/user-attachments/assets/743698c0-e2d5-46dc-9a24-06bb209b0aa6)
 
