@@ -1,9 +1,9 @@
 <p align="center"
 
 
-![image](https://github.com/user-attachments/assets/36691fbf-8bca-44da-bf60-758fc3f235e6)
+![.](https://gifcity.carrd.co/assets/images/gallery38/af8810a6.gif?v=47652796)
 <br>
-![.](https://wilardo.crd.co/assets/images/gallery23/13ee5167.gif?v=f2364dd6)
+![.](https://gifcity.carrd.co/assets/images/gallery79/6ced1b47.gif?v=47652796)
 
 <p align="center"
 
@@ -11,5 +11,5 @@
 
 <p align="center"
  
-![image](https://github.com/user-attachments/assets/743698c0-e2d5-46dc-9a24-06bb209b0aa6)
+![.](https://gifcity.carrd.co/assets/images/gallery38/af8810a6.gif?v=47652796)
 
