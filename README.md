@@ -1,15 +1,15 @@
 <p align="center"
 
 
-![.](https://gifcity.carrd.co/assets/images/gallery38/af8810a6.gif?v=47652796)
+![image](https://github.com/user-attachments/assets/36691fbf-8bca-44da-bf60-758fc3f235e6)
 <br>
-![.](https://gifcity.carrd.co/assets/images/gallery79/6ced1b47.gif?v=47652796)
+![.](https://wilardo.crd.co/assets/images/gallery23/13ee5167.gif?v=f2364dd6)
 
 <p align="center"
 
-<ins>mini **wip**</ins> .
+<ins> **wip**</ins> .
 
 <p align="center"
- 
-![.](https://gifcity.carrd.co/assets/images/gallery38/af8810a6.gif?v=47652796)
+
+![image](https://github.com/user-attachments/assets/743698c0-e2d5-46dc-9a24-06bb209b0aa6)
 
