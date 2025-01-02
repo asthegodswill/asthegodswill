@@ -15,8 +15,7 @@
 <br>
 ⤹ i allow c + h but pls be aware i will likely not int fully w u since idk how to start convos..
 <br>
-idm who ints aslong as u arent weird towards me or rude for no reason ok bye
-
+idm who ints aslong as u arent weird towards me or rude for no reason,, i dont do rps too ok bye
 
 <p align="center"
 
