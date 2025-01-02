@@ -7,7 +7,16 @@
 
 <p align="center"
 
-<ins> **wip**</ins> .
+*hi i may edit myprofile a lot so bear w me here*
+
+<p align="center"
+
+ u can call me elphelt or el,, idm what pronouns u use on me!!
+<br>
+⤹ i allow c + h but pls be aware i will likely not int fully w u since idk how to start convos..
+<br>
+idm who ints aslong as u arent weird towards me or rude for no reason ok bye
+
 
 <p align="center"
 
