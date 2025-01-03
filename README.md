@@ -1,4 +1,4 @@
 <p align="center"
 
 
-bive irl trust . . .
+the real BIVE trust . . .
