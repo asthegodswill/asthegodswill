@@ -13,7 +13,7 @@
 
  u can call me elphelt or el,, idm what pronouns u use on me!!
 <br>
-⤹ i allow c + h but pls be aware i will likely not int fully w u since idk how to start convos..also i take a while 2 respond so w2i pls
+⤹ i allow c + h but pls be aware i will likely not int fully w u since idk how to start convos..also i take a while 2 respond/offtab a lot so w2i pls
 <br>
 idm who ints aslong as u arent weird towards me or rude for no reason,, i dont do rps too ok bye
 
