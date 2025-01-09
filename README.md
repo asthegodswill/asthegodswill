@@ -4,6 +4,10 @@
 
 <p align="center"
   
+![.](https://cdn.discordapp.com/attachments/1257806596977852439/1326989748832567358/IMG_5985.gif?ex=67816f02&is=67801d82&hm=ea4a46c54baa814c21183e09c77530aeabe9073a3dc7c11eb2454b4901b577cc&) 
+
+<p align="center"
+  
 ![image](https://github.com/user-attachments/assets/f665d86a-d97b-4a23-80e6-8615503caa01)
 
 <p align="center"
