@@ -8,7 +8,7 @@
 <br>
 ignore how ugly this is
 <br>
-[byi + dni](https://rentry.co/ptbyidnilist)
+anyways dont be scared to int w me im nice trust
 
 <p align="center"
 
