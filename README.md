@@ -1,3 +1,3 @@
 <p align="center"
   
-![.](https://cdn.discordapp.com/attachments/1257806596977852439/1326383075323674808/IMG_5958.gif?ex=677f3a00&is=677de880&hm=6be23646c2b6e3514527e78e0846721318018def6a9427416f0ed8476a5f8d03&)
+![.](https://www.gigaglitters.com/created/f1I1mAtMz1.gif)
