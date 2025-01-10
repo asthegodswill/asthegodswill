@@ -8,7 +8,7 @@
 <br>
 ignore how ugly this is
 <br>
-anyways dont be scared to int w me im nice trust
+anyways dont be scared to int w me im nice trust but awkward
 
 <p align="center"
 
