@@ -4,8 +4,6 @@
 hi i am elphelt 
 <br>
 i am gen verysocially awkward n quiet dont think i am doingit on purpose pls
-<br>
-ignore the shit below ok
 
 <p align="center"
 
