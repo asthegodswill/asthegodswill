@@ -1,7 +1,7 @@
 
 <p align="center"
 
-hi i am elphelt 
+hello i am elphelt 
 <br>
 i am gen very socially awkward n quiet, dont take it the wrong way
 
