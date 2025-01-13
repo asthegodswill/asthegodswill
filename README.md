@@ -3,7 +3,7 @@
 
 hi i am elphelt 
 <br>
-i am gen verysocially awkward n quiet dont think i am doingit on purpose pls
+i am gen very socially awkward n quiet, dont take it the wrong way
 
 <p align="center"
 
