@@ -1,9 +1,9 @@
 
 <p align="center"
 
-hello i am elphelt 
+haiii im elphelt!!
 <br>
-i am gen very socially awkward n quiet, dont take it the wrong way
+i enjoy making newfriends dont be scared 2 int ^_^
 
 <p align="center"
 
