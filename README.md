@@ -3,7 +3,7 @@
 
 haiii im elphelt!!
 <br>
-i enjoy making newfriends dont be scared 2 int ^_^
+im usually pretty quiet but dont be scared 2 int ^_^
 
 <p align="center"
 
